@@ -1,4 +1,4 @@
-Hi, I’m @Jorgemartin00, an undergraduate student of economics. I'm interested in economic analysis and computational economics. 
+Hi, I’m @Jorgemartin00, a graduate student of economics 
 
 
 
